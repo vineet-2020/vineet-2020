@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **vineetgoel0517@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1qRnjpqH7Wm4v3OEEuAN6TTgbDyRAzJic/edit?usp=sharing&ouid=100807844689693039497&rtpof=true&sd=true)
-
 - ⚡ Fun fact **I have a knack for cooking exotic dishes and have tried over 50 different recipes**
 
 <h3 align="left">Connect with me:</h3>
